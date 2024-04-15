@@ -2,7 +2,7 @@
 - 👀 I’m interested Estagiar
 - 🌱 I’m currently learning programation.
 - 💞️ I’m looking to collaborate on develop together with the company;
-- 📫 How to reach me phone number or whatsapp;
+- 📫 How to reach me phone number or whatsapp 8199669-7513;
 - 😄 Pronouns: ... 
 - ⚡ Fun fact: ... liking the new, keeping me changing.
 
